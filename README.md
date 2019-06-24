@@ -64,20 +64,3 @@ Selebih dan kurangnya moon dimaafkan,jika anda blom paham cara installnya,anggap
 Harapanku!
 Jangan songong,pakailah dgan bijak,biar berkah ghank..(AMIN)....
 
-Keep spirit fort 's to day
-Salam dari team DKBOT-LINE
-Dan apabila minat gabung ngumpul di sq silahkan add contact line = dzul1991ji
-Wa.08219783902
-Thank's
-           Wassalam...
-Dzulkiflidkbot di 08.09
-Berbagi
-Tidak ada komentar:
-Posting Komentar
-Beranda
-Lihat versi web
-Mengenai Saya
-Dzulkiflidkbot
- 
-Diberdayakan oleh Blogger.
-By.Dzulkiflii Makassar
